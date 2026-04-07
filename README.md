@@ -1,1 +1,1 @@
-# hurslandogan1.github.io
+# hsyncomtr.github.io
